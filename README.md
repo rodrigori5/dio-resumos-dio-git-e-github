@@ -1,4 +1,4 @@
-# Nubila inmeriti
+# Nubila inmerti
 
 ## Tellus ab illius frondes confundere longo felix
 
@@ -40,7 +40,7 @@ talia! Exsiliantque toto.
 
 Non super campus capientibus damus **sic Mavortia** fulget. Nato matris?
 
-## Carpis una tendens iubet
+## Carpis una tendens iube
 
 Non grandine videns vobis nostris sacerdos, toto possedit *natum fieri*! Sed
 haec ambiguus Clytii doluisse ab, novi cur culpam, sic oblitus! Remulus et
